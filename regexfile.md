@@ -5,4 +5,11 @@ Thanks for joining the call ############
 
 
 
-Meetin details for 4 PM IST today ################3
+Meetin details for 4 PM IST today ##################3
+
+
+
+thanks all for joinign the call for today.
+Let meet on Monday.
+
+Happy weekend !!!
